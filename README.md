@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Chi-a11y (WIP)
+- 👋 Hi, I’m @Chi-a11y
